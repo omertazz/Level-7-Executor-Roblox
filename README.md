@@ -4,5 +4,5 @@ Can take any script On roblox
 
 Joi Discord If need any help with the setup
 
-       Discord.gg/peacee
+       https://discord.gg/SUrgkZxUh5
        
