@@ -2,7 +2,7 @@
 
 Can take any script On roblox
 
-Joi Discord If need any help with the setup
+Join Discord If need any help with the setup
 
        https://discord.gg/SUrgkZxUh5
        
